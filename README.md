@@ -1,0 +1,1 @@
+# codedamn-lottery-sc-project
